@@ -16,5 +16,5 @@
 ## Tung Ting
 - velmi jemný zelený čaj
 - hodně nálevů (3)
-- 1. a 2. nálev stejný
+- stejná chuť 1. a 2. nálevu 
 
